@@ -1,1 +1,1 @@
-pif paf
+sam ty chernyi
